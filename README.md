@@ -1,5 +1,5 @@
 # Free Legendary Game of Heroes Gems generator 2022 no verification with free Gems glitch
-<a href="https://starhack.online/"><img src="https://i.imgur.com/XwDj1vs.png" title="hover text"></a>
+<a href="https://starhack.online/legendary-game-of-heroes/"><img src="https://i.imgur.com/XwDj1vs.png" title="hover text"></a>
 
 
 The Best Legendary Game of Heroes Free Unlimite Gems in 2022
